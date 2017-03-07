@@ -1,4 +1,4 @@
-## I LOVE YOU JESS
+## Jaspreet and Karanbir Toor 
 
 You can use the [editor on GitHub](https://github.com/KaranToor/jktoor/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
